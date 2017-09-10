@@ -1,0 +1,2 @@
+# kulot
+maganda ako
